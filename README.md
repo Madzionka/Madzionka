@@ -1,0 +1,4 @@
+- 👋🏻 Hi, I’m @Madzionka
+- 👀 I’m interested in new technologies, HCI, video games and virtual reality.
+- 🌱 I’m currently studying social informatics at the AGH University of Science and Technology in Cracow.
+- 📫 My e-mail: magdalena.lataa@gmail.com
